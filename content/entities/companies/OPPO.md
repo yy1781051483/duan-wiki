@@ -30,7 +30,7 @@ OPPO企业文化对本分有一条步步高原始版本中没有的表述：
 
 ## OPPO Digital（美国高端音视频品牌）
 
-段永平的步步高体系在美国运营OPPO Digital品牌，生产高端蓝光播放器、耳机放大器等音视频产品。2012年4月，PCMag将OPPO Digital BDP-103评为年度最佳蓝光播放器。段永平在博文中转载并评论：
+段永平的步步高体系在美国运营OPPO Digital品牌，生产高端蓝光播放器、耳机放大器等音视频产品。2012年，PCMag Readers' Choice 蓝光机评选连续第二年由 OPPO Digital 获得（首年由 BDP-93 同时获得 PCMag Editors' Choice）。段永平在博文中转载并评论：
 
 > "我为这些伙计们高兴。这些都是当年步步高DVD的人出去后形成的团队，非常非常专注于产品，不计较结果的人（消费者导向）。"
 > — [[sources/duan/【文章目录】/4-网易博客集/235-OPPO Blu-ray Players|235-OPPO Blu-ray Players]]（2012年）
